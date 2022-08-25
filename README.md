@@ -35,4 +35,6 @@ My general interest revolves around Web Development and now I'm exploring a litl
 
 
 
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
+![Alt Text](https://31.media.tumblr.com/17fea920ff36ef4f5b877d5216a7aad9/tumblr_mo9xje8zZ41qcbiufo1_1280.gif)
